@@ -1,16 +1,39 @@
-## Hi there 👋
+# 玉兔机场官网地址
 
-<!--
-**yutucloud/yutucloud** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+最新地址：[玉兔丫.com](https://1.xn--diqv0fut7b.com/#/register?code=N4Mabhiu)
 
-Here are some ideas to get you started:
+## 玉兔机场介绍
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+玉兔机场，最高流量每月312G，8K视频不卡顿，1Gbps 带宽保证。
+
+全球15个国家接入，解锁奈飞，迪士尼，ChatGPT等服务。
+
+支付方式支持支付宝和微信。
+
+## 玉兔机场优惠码
+
+玉兔 618优惠活动
+
+月付9折优惠码： 618-9
+
+季付85折优惠码： 618-85
+
+半年付82折优惠码： 618-82
+
+年付8折优惠码： 618-8
+
+有效期：2024/6/15—2024/6/20
+
+## 玉兔机场价格
+
+|套餐|118G|169G|312G|
+|----|----|----|----|
+|月付|¥10|¥15|¥28|
+|季付|¥30|¥45|¥84|
+|半年付|¥60|¥90|¥168|
+|年付|¥120|¥180|¥336|
+
+**一次性**
+
+631G-不限时 ¥120.00 /一次性
+
