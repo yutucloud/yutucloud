@@ -1,6 +1,6 @@
 # 玉兔机场官网地址
 
-最新地址：[玉兔丫.com](https://1.xn--diqv0fut7b.com/#/register?code=N4Mabhiu)
+最新地址：[玉兔丫.xyz](https://xn--diqv0fut7b.xyz/)
 
 ## 玉兔机场介绍
 
